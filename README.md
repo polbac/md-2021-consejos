@@ -1,3 +1,5 @@
+<img src="https://media.giphy.com/media/lP3BnpgW5hvN2cLPt0/giphy.gif" />
+
 ## 🈂️ Linkedin
 
 - Completar el perfil correctamente
